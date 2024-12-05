@@ -1,7 +1,7 @@
 # Glary-Utilities
 
 <div align="center">
-<img src="[https://i0.wp.com/allpcsoftwares.info/wp-content/uploads/2022/12/Cockos-Glary Utilities-5-cracked.webp?resize=203%2C300&ssl=1](https://i0.wp.com/topcracked.com/wp-content/uploads/2018/11/d85b4906d370b1caa1c82a4299ac5bf6-e1700611727864.png?w=225&ssl=1)" width="200">
+<img src="https://i0.wp.com/topcracked.com/wp-content/uploads/2018/11/d85b4906d370b1caa1c82a4299ac5bf6-e1700611727864.png?w=225&ssl=1" width="200">
 </div>
 
 # Glary Utilities
